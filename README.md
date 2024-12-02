@@ -2,7 +2,7 @@
 - 👀 I’m interested in Frontend
 - 🌱 I’m currently learning Nextjs
 - 💞️ I’m looking to collaborate on
-- 📫 How to reach me instagram.com/prashantkr0811
+- 📫 How to reach me www.instagram.com/prashantkr0811
 - 😄 Pronouns: He
 - ⚡ Fun fact: Discipline beats Depression.
 
